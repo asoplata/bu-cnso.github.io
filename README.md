@@ -2,3 +2,5 @@
 The new BU CNSO webpage, hooray!
 
 lulz
+
+omfg
